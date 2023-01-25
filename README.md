@@ -1,2 +1,3 @@
 # Repositorio-Hennry
-mi primer repesitorio
+Luis Alberto Angulo Conde
+JEHOVA mi escudo y mi refugio 
